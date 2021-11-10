@@ -1,3 +1,3 @@
 # SYSLEssen
-lessen SYS van jelle 
+lessen SYS
 laat gemaakt want ik ben like, dom
